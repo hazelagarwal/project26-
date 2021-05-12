@@ -1,0 +1,1 @@
+Red velvet cake has a lighter chocolate flavor than chocolate cake because it uses a couple tablespoons of cocoa powder instead of full-flavored chocolate bar squares. Additionally, the red cake usually includes acidic ingredients—either buttermilk or vinegar—something you don't find in a standard chocolate cake.08-F
